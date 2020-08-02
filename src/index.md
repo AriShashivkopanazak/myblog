@@ -1,0 +1,1 @@
+# Hi All, I'm Ari Shashivkopanazak, a freelance web developer
